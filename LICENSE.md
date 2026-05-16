@@ -1,4 +1,4 @@
-h# 
+h# vip nft sniper bot | gas-optimization + floor-sweeping is the best nft sniper bot, featuring gas-optimization and floor-sweeping. Fast, smart, and optimized for NFT trading on
 
 
 
